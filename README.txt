@@ -1,1 +1,0 @@
-Discover and connect with our responsive business event website, offering access to industry insights, networking opportunities, and impactful experiences.
